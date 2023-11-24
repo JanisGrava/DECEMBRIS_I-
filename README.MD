@@ -1,0 +1,2 @@
+Jānis Grava
+Pašvērtējums-
